@@ -1,4 +1,4 @@
-##Privacy Policy
+Privacy Policy
 ООО "ИЗИ ГРУПП" built the Изи Курьер app as a Free app. This SERVICE is provided by ООО "ИЗИ ГРУПП" at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding our policies with the collection, use, and disclosure of Personal Information if anyone decided to use our Service.
